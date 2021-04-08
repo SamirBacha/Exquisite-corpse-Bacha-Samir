@@ -2,5 +2,5 @@
 
 ## Ils étaient 25 passionés d'IA ##
 
-### Certains sont comme des poissons dans l'eau tandis que d'autres essayent de garder la tête à la surface ### 
+### Certains sont comme des poissons dans l'eau tandis que d'autres essayent de garder la tête à la surface(dont moi lol) ### 
 
